@@ -16,33 +16,37 @@ I’m always open for a conversation or to answer questions about what you see (
 
 ---
 
-#### The list that follows highlights a few of my areas of interest as I seek a senior marketing role where I can also leverage my data science skills.  
+#### The list that follows highlights a few of my areas of interest as I seek a senior marketing role where I can also leverage my data science skills:  
 
--  Beverage Industry
+-  **Beverage Industry**
 	-  	E-commerce company 
 	-	App Development/Content Publisher
 	-	Importer 
 	-	Distributor
 
--	Media/Entertainment
+-	**Media/Entertainment**
 	-	Portfolio Corporations (Comcast/NBC, Hearst, AT&T/WarnerMedia, etc)
 	- 	Social Media Platforms
 	-	Integrated Telecommunications (Charter/Spectrum)
 
--	Packaged Goods
+-	**Packaged Goods**
 	-	Confections
 	-	Coffee
 	-	Imported/Premium Food Items
 
--	Technology
-	-	Hardware
+-	**Technology**
+	-	Device/Hardware
 	-	Software/Applications
 	-	E-commerce/Retail
 
--	Education
+-	**Education**
 	-	College/University Marketing and Communications
 	-	Educational Platforms (Wiley/Knewton, Pearson)
 
--	Corporate Social Responsibility Programs
+-	**Corporate Social Responsibility Programs**
 
 ---
+
+**Please note:** 
+
+Prior brand experience includes Coca-Cola, Gillette, Duracell, Kraft, Nabisco, IBM, Mobil, Warner Brothers, Mauna Loa, Reckitt Benckiser, InBev USA, Pernod Ricard and more...

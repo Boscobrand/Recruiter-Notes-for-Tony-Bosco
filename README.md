@@ -3,7 +3,7 @@ Here are a few key areas I would be excited to apply my skills to in the future.
 
 ---
 
-#### I’m an experienced *Marketing Executive* who is also proud to have earned the title of *Data Scientist*.
+#### I’m an experienced *Marketing Executive* who is also proud to have earned the titles of *Data Scientist* and "Software Engineer".
 
 
 -  	I am thrilled that having a large intellectual arsenal at my disposal that allows me to develop new strategic and creative approaches to significantly impact target audiences. 
